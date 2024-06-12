@@ -14,10 +14,13 @@ Bastion --> Medium --> Node
 
 TE --> Mockingbird chasing crow
 React
-AF --> Calvinists
- --> Deliquesce
-🦿} SD --> AF
+AF --> Thorn Calvinists
+ --> "Pot" Deliquesce
+🦿} SD --> AF 
 AF --> 
+Chlorination
+Corporation
+Eminem --> Yoarenmao --> Swamp || Pecans
 
 -----
 
